@@ -1,0 +1,1 @@
+# midjourneystudy.github.io
